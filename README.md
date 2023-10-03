@@ -1,0 +1,2 @@
+# Download-Scarlet
+<a href="https://apktyre.com/scarlet-ios/">Download Scarlet</a> iOS right away to upgrade your mobile experience. Discover the extensive collection of apps available on the Scarlet iOS platform by browsing the IPA library. You'll have access to a large universe of programs outside of what the official App Store provides using apps like AppDB, AltStore, and SideStore, which are comparable to Scarlet iOS.
